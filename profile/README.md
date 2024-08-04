@@ -1,2 +1,2 @@
-![image](files/Users/jzhang/Desktop/Isolated.png)
+![image](/profile/website charlie design.png)
 #Charlie Design Development Group
