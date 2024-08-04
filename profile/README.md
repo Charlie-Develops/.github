@@ -1,2 +1,2 @@
-![image](/profile/website charlie design.png)
+![image](/logo.png)
 #Charlie Design Development Group
